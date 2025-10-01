@@ -12,3 +12,6 @@ Miami, Florida 33181, USA
 https://teddypatches.com
 📞 +1 (305) 464-1684
 ✉️ orders@teddypatches.com
+
+
+[Google](https://www.google.com/)
