@@ -14,4 +14,5 @@ https://teddypatches.com
 ✉️ orders@teddypatches.com
 
 
-[Google](https://www.google.com/)
+[Embroidery Patches for Uniforms](https://teddypatches.com/products/custom-embroidered-patches-no-minimum)
+t
